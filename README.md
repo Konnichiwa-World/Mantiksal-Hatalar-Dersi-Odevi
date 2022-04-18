@@ -1,0 +1,1 @@
+# Mantiksal-Hatalar-Dersi-Odevi
